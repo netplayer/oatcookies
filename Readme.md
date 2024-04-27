@@ -14,7 +14,7 @@
 
 Με τις ποσότητες αυτές υλικών μου βγήκαν 11 καταπληκτικά κουλουράκια, μέινανε και 4 για το πρωί.
 
-[Την ξεσήκωσα απο:](https://cookpad.com/gr/sintages/15467976-mpiskota-bromis-eukola-kai-ugieina)
+[Την ξεσήκωσα απο](https://cookpad.com/gr/sintages/15467976-mpiskota-bromis-eukola-kai-ugieina)
 
 IN ENGLISH:
 
@@ -34,7 +34,7 @@ At first they are soft, but if you leave them for a while they will become as ha
 
 With these amounts of ingredients, I got 11 amazing cookies, and 4 were left for the morning.
 
-[Credits:]( https://cookpad.com/gr/sintages/15467976-mpiskota-bromis-eukola-kai-ugieina)
+[Credits]( https://cookpad.com/gr/sintages/15467976-mpiskota-bromis-eukola-kai-ugieina)
 
 ![Τα υπέροχα κουλουράκια βρώμης](https://github.com/netplayer/oatcookies/blob/main/20240428_001707.jpg)
 
