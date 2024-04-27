@@ -1,8 +1,13 @@
 Υλικά
+
 100 γραμμ. νιφάδες βρώμης
+
 3 κ. σούπας ταχίνι με μέλι
+
 2 κουταλάκια γλυκού μέλι 
+
 1/2 κουτ. γλυκού κανέλλα
+
 Μερικές σταφίδες
 
 Τα ανακατεύετε καλά και μετά πλάθετε κουλουράκια.
@@ -20,11 +25,17 @@
 IN ENGLISH:
 
 Materials
+
 100 grams oat flakes
+
 3 tablespoons of tahini with honey
+
 2 teaspoons of honey
+
 1/2 tsp. sweet cinnamon
+
 Some raisins
+
 
 Mix them well and then form cookies.
 
